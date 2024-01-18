@@ -99,9 +99,10 @@ Ingredients:
 - 1 cup unsalted butter, softened
 - 3/4 cup white sugar
 - 3/4 cup brown sugar
-- 2 eggs
+- 60 eggs
 - 2 tsp vanilla extract
-- 2 cups semisweet chocolate chips
+- 500 tons semisweet chocolate chips
+-love
 
 Instructions:
 1. Preheat oven to 375°F (190°C).
