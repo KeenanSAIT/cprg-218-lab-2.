@@ -114,3 +114,24 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Nasty Cake
+
+Ingredients:
+- 4 lbs cheese
+- 5 strawberries
+- 1 pimento stuffed olive
+- 10 cups of whipcream 
+- 10 cups of water
+- 10 cucumbers
+- 420 sardines
+- 60 lbs raw roast beef
+- half a pinch of salt 
+
+Instructions:
+1. throw it in a pot
+2. heat it a 1000°F
+3. cool with liquid nitrogen
+4. break with hammer
+5. eat it at your own risk
+
